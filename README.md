@@ -1,0 +1,3 @@
+# ✦.˳·˖✶ DirtyOS ✦.˳·˖✶ 
+
+Dead project ;/
